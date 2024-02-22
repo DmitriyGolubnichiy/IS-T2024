@@ -1,3 +1,2 @@
 # IS-T2024
 *текст*
-6917560917:AAE4ypvoO053YY4vXDCfEt4QhktynyQ0RSo
